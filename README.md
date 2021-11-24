@@ -12,4 +12,7 @@
   如果你觉得内容有用可以请我次一包小辣条哦(๑>؂<๑）。如果你赞助了，那万分感谢！祝您生活越来越美好～  
 ![赞赏收款码](http://cdn.bxwin.cn/ico/ico.png "暂时不贴")
 #### 站点运营
-  这部分待补充
+  这部分待补充  
+:green_heart::green_heart::green_heart::heartbeat::green_heart::green_heart::heartbeat::green_heart::green_heart::green_heart:  
+:green_heart::green_heart::heart::green_heart::heart::heart::green_heart::heart::green_heart::green_heart:  
+
