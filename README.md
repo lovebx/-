@@ -2,7 +2,7 @@
 ### 关于我
   当然说我把:innocent:，我是一个爱分享、爱网络、爱代码、爱钱钱、爱音乐、爱游戏、爱影视等等的一个~~美女~~。  
 #### 联系方式
-  邮箱：i@xinengit.com  
+  邮箱：i@ximengit.com  
   Q Q：	[743315368](http://wpa.qq.com/msgrd?v=3&uin=743315368&site=qq&menu=yes "许美丽的QQ")
   
 ### 关于站点
