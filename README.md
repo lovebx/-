@@ -1,6 +1,6 @@
 ## 关于本站
 ### 关于我
-  当然说我把:innocent:，我是一个爱分享、爱网络、爱代码、爱钱钱、爱音乐、爱游戏、爱影视等等的一个~~美女~~。  
+  当然说我把(⁎⚈᷀᷁ᴗ⚈᷀᷁⁎)，我是一个爱分享、爱网络、爱代码、爱钱钱、爱音乐、爱游戏、爱影视等等的一个~~美女~~。  
 #### 联系方式
   邮箱：i@ximengit.com  
   Q Q：	[743315368](http://wpa.qq.com/msgrd?v=3&uin=743315368&site=qq&menu=yes "许美丽的QQ")
@@ -13,6 +13,6 @@
 ![赞赏收款码](http://cdn.bxwin.cn/ico/ico.png "暂时不贴")
 #### 站点运营
   这部分待补充  
-:green_heart::green_heart::green_heart::heartbeat::green_heart::green_heart::heartbeat::green_heart::green_heart::green_heart:  
-:green_heart::green_heart::heart::green_heart::heart::heart::green_heart::heart::green_heart::green_heart:  
 
+### 关于版权
+任何人均可以访问站内文件，但所有内容均为学习交流使用，下载着请在下载后24小时内删除，不得用于商业及非法使用
